@@ -1,1 +1,1 @@
-brainrot games from youtube
+brainrot yandex games (names might not be the same as in yandex) 
